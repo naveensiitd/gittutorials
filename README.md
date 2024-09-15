@@ -1,1 +1,1 @@
-# Tutorial by Krish
+# Tutorial by Naveen
